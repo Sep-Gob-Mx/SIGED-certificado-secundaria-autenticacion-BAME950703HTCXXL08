@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-BAME950703HTCXXL08
+BAME950703HTCXXL08
